@@ -1,0 +1,13 @@
+Speech Intro 
+
+  This semester is full of wonders and dreams. It's as if I'm approaching   another dimension. Where I'm stepping out of my comfort zone, and learning new things about myself. In other words, this semester can be summed up as a dice: one side is me being a social butterfly, another side i'm an egotistical speech mongrel, thirdly I could possibly not change at all, lastly I could possibly break and lose all my resolve to improve. The reason for all these discrepancies is due to the student heart inside of me.  Which is always craving information. This heart inside of me is beating faster by the day and realizes that in time my heart of a student will cease to beat. Besides, humanity is immortal right? Wrong.. While I feel so many things can go wrong, I  realize that things can go right and i'll keep improving the more I practice speech. The cause for the negligence of my "student heart", is my first time going up looking at the ground and proceeding to give an irregular speech "in a bad way" and a trash first impression. My "student heart" is the reason, for me wanting to better myself in this course. 
+
+Speech Body 
+
+  Although this student heart perpetually beats, it will never be satisfied until it reaches its goals. Its goals are being able to read the room, lowering signs of nervousness my last goal of this semester is to be able to achieve passion in communication with others. Reading the room is important to me, it's a way for me to efficiently  relay my thoughts to the listeners and suck them into the conversation. With this, I hope to become a more seamless communicator. Secondly lowering my visible signs of nervousness while speaking, it won't be an easy task, however it is a very important one. Achieving passion while speaking gives me a reason to speak to others, without passion it's hard to pay attention while speaking to others. 
+
+Speech Conclusion 
+
+  Finally we discuss the measures I'll take to achieve these herculean goals .  
+
+Firstly to be able to congregate with the crowd, I have to be able to pay attention to the faces of the people in the crowd. Secondly to lower signs of nervousness I have to become a master at devising and master breathing. Lastly to achieve passion in communicating with others, this will require me to communicate with others more. This will be an arduous task but it's definitely a plausible one. These reasons is why this semester is full of wonders and dreams.
